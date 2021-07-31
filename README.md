@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RishabhRaj19
-- 👀 I’m interested in learning develloping programs
+- 👀 I’m interested in learning developing programs
 - 🌱 I’m currently learning Scratch
 - 💞️ I’m looking to collaborate on Scratch
 - 📫 How to reach me Discord: rishabhthepro_190609#3207
